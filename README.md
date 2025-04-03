@@ -31,8 +31,8 @@ Innovative projects for the defense industry
 AI and data science research
 
 📫 Contact Me:
-📷 Instagram: [https://www.instagram.com/batuhantelim/]
-📧 Email: [batuhantelim1@gmail.com]
-🔗 LinkedIn: [https://www.linkedin.com/in/batuhan-telim-8b082b224/]
+📷 Instagram: [https://www.instagram.com/batuhantelim/] <br/>
+📧 Email: [batuhantelim1@gmail.com] <br/>
+🔗 LinkedIn: [https://www.linkedin.com/in/batuhan-telim-8b082b224/] <br/>
 
 “Science and technology will always be your most powerful weapons.” – Mustafa Kemal Atatürk
