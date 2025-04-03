@@ -1,4 +1,4 @@
-![instagram 256x256](https://github.com/user-attachments/assets/05d699ec-b602-4e3d-9c11-da3399f70686)🚀 Batuhan | Space Sciences & Technologies Student |
+🚀 Batuhan | Space Sciences & Technologies Student |
 🔭 About Me:
 Hi there! I'm Batuhan, a Space Sciences and Technologies student. My goal is to develop revolutionary projects in the defense and space industries, positioning Turkey as a leader in these fields while making a global impact.
 
